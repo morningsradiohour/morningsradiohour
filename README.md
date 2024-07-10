@@ -1,4 +1,5 @@
-## ㅤㅤRADIOBROADCAST ![Untitled65_20240710203425](https://github.com/morningsradiohour/morningsradiohour/assets/172957575/ec5a0d4d-c7fc-466c-bd62-a41c6beef8a4)   ㅤ   ㅤ[fullbroadcast](https://rentry.org/rosesforyourradio) ㅤㅤㅤㅤ[pre-record](https://inanotheruniverse.straw.page) ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[listenersthought](https://willex.sayout.net)
+## ㅤㅤRADIOBROADCAST ![Untitled65_20240710203425](https://github.com/morningsradiohour/morningsradiohour/assets/172957575/ec5a0d4d-c7fc-466c-bd62-a41c6beef8a4)   ㅤ   ㅤ
+[fullbroadcast](https://rentry.org/rosesforyourradio) ㅤㅤㅤ[pre-record](https://inanotheruniverse.straw.page) ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[listenersthought](https://willex.sayout.net)
  
 .broadcast preview !
 
